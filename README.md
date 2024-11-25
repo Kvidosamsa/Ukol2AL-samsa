@@ -1,1 +1,0 @@
-# Ukol2AL-samsa
